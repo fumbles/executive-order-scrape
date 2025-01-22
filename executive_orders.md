@@ -1,7 +1,29 @@
 # Executive Orders
 
 <details>
-<summary>1. GUARANTEEING THE STATES PROTECTION AGAINST INVASION</summary>
+<summary>1. Ending Illegal Discrimination And Restoring Merit-Based Opportunity</summary>
+
+By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:Section 1.  Purpose.  Longstanding Federal civil-rights laws protect individual Americans from discrimination based on race, color, religion, sex, or national origin.  These civil-rights protections serve as a bedrock supporting equality of opportunity for all Americans.  As President, I have a solemn duty to ensure that these laws are enforced for the benefit of all Americans.Yet today, roughly 60 years after the passage of the Civil Rights Act of 1964, critical and influential institutions of American society, including the Federal Government, major corporations, financial institutions, the medical industry, large commercial airlines, law enforcement agencies, and institutions of higher education have adopted and actively use dangerous, demeaning, and immoral race- and sex-based preferences under the guise of so-called “diversity, equity, and inclusion” (DEI) or “diversity, equity, inclusion, and accessibility” (DEIA) that can violate the civil-rights laws of this Nation.Illegal DEI and DEIA policies not only violate the text and spirit of our longstanding Federal civil-rights laws, they also undermine our national unity, as they deny, discredit, and undermine the traditional American values of hard work, excellence, and individual achievement in favor of an unlawful, corrosive, and pernicious identity-based spoils system.  Hardworking Americans who deserve a shot at the American Dream should not be stigmatized, demeaned, or shut out of opportunities because of their race or sex.These illegal DEI and DEIA policies also threaten the safety of American men, women, and children across the Nation by diminishing the importance of individual merit, aptitude, hard work, and determination when selecting people for jobs and services in key sectors of American society, including all levels of government, and the medical, aviation, and law-enforcement communities.  Yet in case after tragic case, the American people have witnessed first-hand the disastrous consequences of illegal, pernicious discrimination that has prioritized how people were born instead of what they were capable of doing.The Federal Government is charged with enforcing our civil-rights laws.  The purpose of this order is to ensure that it does so by ending illegal preferences and discrimination.Sec. 2.  Policy.  It is the policy of the United States to protect the civil rights of all Americans and to promote individual initiative, excellence, and hard work.  I therefore order all executive departments and agencies (agencies) to terminate all discriminatory and illegal preferences, mandates, policies, programs, activities, guidance, regulations, enforcement actions, consent orders, and requirements.  I further order all agencies to enforce our longstanding civil-rights laws and to combat illegal private-sector DEI preferences, mandates, policies, programs, and activities.Sec. 3.  Terminating Illegal Discrimination in the Federal Government.  (a)  The following executive actions are hereby revoked:(i)    Executive Order 12898 of February 11, 1994 (Federal Actions to Address Environmental Justice in Minority Populations and Low-Income Populations);(ii)   Executive Order 13583 of August 18, 2011 (Establishing a Coordinated Government-wide Initiative to Promote Diversity and Inclusion in the Federal Workforce);(iii)  Executive Order 13672 of July 21, 2014 (Further Amendments to Executive Order 11478, Equal Employment Opportunity in the Federal Government, and Executive Order 11246, Equal Employment Opportunity); and(iv)   The Presidential Memorandum of October 5, 2016 (Promoting Diversity and Inclusion in the National Security Workforce).(b)  The Federal contracting process shall be streamlined to enhance speed and efficiency, reduce costs, and require Federal contractors and subcontractors to comply with our civil-rights laws.  Accordingly:(i)    Executive Order 11246 of September 24, 1965 (Equal Employment Opportunity), is hereby revoked.  For 90 days from the date of this order, Federal contractors may continue to comply with the regulatory scheme in effect on January 20, 2025.(ii)   The Office of Federal Contract Compliance Programs within the Department of Labor shall immediately cease:(A)  Promoting “diversity”;(B)  Holding Federal contractors and subcontractors responsible for taking “affirmative action”; and(C)  Allowing or encouraging Federal contractors and subcontractors to engage in workforce balancing based on race, color, sex, sexual preference, religion, or national origin.(iii)  In accordance with Executive Order 13279 of December 12, 2002 (Equal Protection of the Laws for Faith-Based and Community Organizations), the employment, procurement, and contracting practices of Federal contractors and subcontractors shall not consider race, color, sex, sexual preference, religion, or national origin in ways that violate the Nation’s civil rights laws.(iv)   The head of each agency shall include in every contract or grant award:(A)  A term requiring the contractual counterparty or grant recipient to agree that its compliance in all respects with all applicable Federal anti-discrimination laws is material to the government’s payment decisions for purposes of section 3729(b)(4) of title 31, United States Code; and(B)  A term requiring such counterparty or recipient to certify that it does not operate any programs promoting DEI that violate any applicable Federal anti-discrimination laws.(c)  The Director of the Office of Management and Budget (OMB), with the assistance of the Attorney General as requested, shall:(i)    Review and revise, as appropriate, all Government-wide processes, directives, and guidance;(ii)   Excise references to DEI and DEIA principles, under whatever name they may appear, from Federal acquisition, contracting, grants, and financial assistance procedures to streamline those procedures, improve speed and efficiency, lower costs, and comply with civil-rights laws; and(iii)  Terminate all “diversity,” “equity,” “equitable decision-making,” “equitable deployment of financial and technical assistance,” “advancing equity,” and like mandates, requirements, programs, or activities, as appropriate.Sec. 4.  Encouraging the Private Sector to End Illegal DEI Discrimination and Preferences.  (a)  The heads of all agencies, with the assistance of the Attorney General, shall take all appropriate action with respect to the operations of their agencies to advance in the private sector the policy of individual initiative, excellence, and hard work identified in section 2 of this order.(b)  To further inform and advise me so that my Administration may formulate appropriate and effective civil-rights policy, the Attorney General, within 120 days of this order, in consultation with the heads of relevant agencies and in coordination with the Director of OMB, shall submit a report to the Assistant to the President for Domestic Policy containing recommendations for enforcing Federal civil-rights laws and taking other appropriate measures to encourage the private sector to end illegal discrimination and preferences, including DEI.  The report shall contain a proposed strategic enforcement plan identifying:(i)    Key sectors of concern within each agency’s jurisdiction;(ii)   The most egregious and discriminatory DEI practitioners in each sector of concern;(iii)  A plan of specific steps or measures to deter DEI programs or principles (whether specifically denominated “DEI” or otherwise) that constitute illegal discrimination or preferences.  As a part of this plan, each agency shall identify up to nine potential civil compliance investigations of publicly traded corporations, large non-profit corporations or associations, foundations with assets of 500 million dollars or more, State and local bar and medical associations, and institutions of higher education with endowments over 1 billion dollars;(iv)   Other strategies to encourage the private sector to end illegal DEI discrimination and preferences and comply with all Federal civil-rights laws;(v)    Litigation that would be potentially appropriate for Federal lawsuits, intervention, or statements of interest; and(vi)   Potential regulatory action and sub-regulatory guidance.Sec. 5.  Other Actions.  Within 120 days of this order, the Attorney General and the Secretary of Education shall jointly issue guidance to all State and local educational agencies that receive Federal funds, as well as all institutions of higher education that receive Federal grants or participate in the Federal student loan assistance program under Title IV of the Higher Education Act, 20 U.S.C. 1070 et seq., regarding the measures and practices required to comply with Students for Fair Admissions, Inc. v. President and Fellows of Harvard College, 600 U.S. 181 (2023).Sec. 6.  Severability.  If any provision of this order, or the application of any provision to any person or circumstance, is held to be invalid, the remainder of this order and the application of its provisions to any other persons or circumstances shall not be affected thereby.Sec. 7.  Scope.  (a)  This order does not apply to lawful Federal or private-sector employment and contracting preferences for veterans of the U.S. armed forces or persons protected by the Randolph-Sheppard Act, 20 U.S.C. 107 et seq.(b)  This order does not prevent State or local governments, Federal contractors, or Federally-funded State and local educational agencies or institutions of higher education from engaging in First Amendment-protected speech.(c)  This order does not prohibit persons teaching at a Federally funded institution of higher education as part of a larger course of academic instruction from advocating for, endorsing, or promoting the unlawful employment or contracting practices prohibited by this order.Sec. 8.  General Provisions.  (a)  Nothing in this order shall be construed to impair or otherwise affect:(i)   the authority granted by law to an executive department, agency, or the head thereof; or(ii)  the functions of the Director of the Office of Management and Budget relating to budgetary, administrative, or legislative proposals.(b)  This order shall be implemented consistent with applicable law and subject to the availability of appropriations.(c)  This order is not intended to and does not create any right or benefit, substantive or procedural, enforceable at law or in equity by any party against the United States, its departments, agencies, or entities, its officers, employees, or agents, or any other person.THE WHITE HOUSE,January 21, 2025.
+
+
+
+[Read more](https://www.whitehouse.gov/presidential-actions/2025/01/ending-illegal-discrimination-and-restoring-merit-based-opportunity/)
+
+</details>
+
+<details>
+<summary>2. Keeping Americans Safe in Aviation</summary>
+
+SUBJECT:       Keeping Americans Safe in Aviation
+
+Every day, the Federal Aviation Administration (FAA), within the U.S. Department of Transportation, oversees safety for more than 45,000 flights and 2.9 million airline passengers.  These Americans trust the FAA’s public servants with their lives, and it is therefore imperative that they maintain a commitment to excellence and efficiency.During the prior administration, however, the FAA betrayed its mission by elevating dangerous discrimination over excellence.  For example, prior to my Inauguration, the FAA Diversity and Inclusion website revealed that the prior administration sought to specifically recruit and hire individuals with serious infirmities that could impact the execution of their essential life-saving duties.Illegal and discriminatory diversity, equity, and inclusion (DEI) hiring, including on the basis of race, sex, disability, or any other criteria other than the safety of airline passengers and overall job excellence, competency, and qualification, harms all Americans, who deserve to fly with confidence.  It also penalizes hard-working Americans who want to serve in the FAA but are unable to do so, as they lack a requisite disability or skin color.  FAA employees must hold the qualifications and have the ability to perform their jobs to the highest possible standard of excellence.I hereby order the Secretary of Transportation and the Federal Aviation Administrator to immediately return to non-discriminatory, merit-based hiring, as required by law.  All so-called DEI initiatives, including all dangerous preferencing policies or practices, shall immediately be rescinded in favor of hiring, promoting, and otherwise treating employees on the basis of individual capability, competence, achievement, and dedication.The Secretary of Transportation and the Federal Aviation Administrator shall review the past performance and performance standards of all individuals in critical safety positions and take all appropriate action to ensure that any individual who fails or has failed to demonstrate requisite capability is replaced by a high-capability individual that will ensure top-notch air safety and efficiency.
+
+[Read more](https://www.whitehouse.gov/presidential-actions/2025/01/keeping-americans-safe-in-aviation/)
+
+</details>
+
+<details>
+<summary>3. Guaranteeing The States Protection Against Invasion</summary>
 
 BY THE PRESIDENT OF THE UNITED STATES OF AMERICA
 
@@ -64,7 +86,7 @@ IN WITNESS WHEREOF, I have hereunto set my hand this twentieth day of January, i
 </details>
 
 <details>
-<summary>2. Restoring Names That Honor American Greatness</summary>
+<summary>4. Restoring Names That Honor American Greatness</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -113,7 +135,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>3. Designating Cartels And Other Organizations As Foreign Terrorist Organizations And Specially Designated Global Terrorists</summary>
+<summary>5. Designating Cartels And Other Organizations As Foreign Terrorist Organizations And Specially Designated Global Terrorists</summary>
 
 DESIGNATING CARTELS AND OTHER ORGANIZATIONS AS FOREIGN TERRORIST ORGANIZATIONS AND SPECIALLY DESIGNATED GLOBAL TERRORISTS
 
@@ -162,7 +184,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>4. Reforming The Federal Hiring Process And Restoring Merit To Government Service</summary>
+<summary>6. Reforming The Federal Hiring Process And Restoring Merit To Government Service</summary>
 
 REFORMING THE FEDERAL HIRING PROCESS AND RESTORING MERIT TO GOVERNMENT SERVICE
 
@@ -219,7 +241,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>5. Ending Radical And Wasteful Government DEI Programs And Preferencing</summary>
+<summary>7. Ending Radical And Wasteful Government DEI Programs And Preferencing</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -276,7 +298,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>6. Defending Women From Gender Ideology Extremism And Restoring Biological Truth To The Federal Government</summary>
+<summary>8. Defending Women From Gender Ideology Extremism And Restoring Biological Truth To The Federal Government</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, including section 7301 of title 5, United States Code, it is hereby ordered:
 
@@ -389,7 +411,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>7. Establishing And Implementing The President’s “Department Of Government Efficiency”</summary>
+<summary>9. Establishing And Implementing The President’s “Department Of Government Efficiency”</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -432,7 +454,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>8. America First Policy Directive To The Secretary Of State</summary>
+<summary>10. America First Policy Directive To The Secretary Of State</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -459,7 +481,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>9. Protecting The United States From Foreign Terrorists And Other National Security And Public Safety Threats</summary>
+<summary>11. Protecting The United States From Foreign Terrorists And Other National Security And Public Safety Threats</summary>
 
 PROTECTING THE UNITED STATES FROM FOREIGN TERRORISTS AND OTHER
 
@@ -526,7 +548,7 @@ January 20 2025.
 </details>
 
 <details>
-<summary>10. Unleashing Alaska’s Extraordinary Resource Potential</summary>
+<summary>12. Unleashing Alaska’s Extraordinary Resource Potential</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -625,7 +647,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>11. Protecting The American People Against Invasion</summary>
+<summary>13. Protecting The American People Against Invasion</summary>
 
 PROTECTING THE AMERICAN PEOPLE AGAINST INVASION
 
@@ -744,7 +766,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>12. The Organization for Economic Co-operation and Development (OECD) Global Tax Deal (Global Tax Deal)</summary>
+<summary>14. The Organization for Economic Co-operation and Development (OECD) Global Tax Deal (Global Tax Deal)</summary>
 
 MEMORANDUM FOR THE SECRETARY OF THE TREASURY
 
@@ -775,7 +797,7 @@ Sec. 3.  General Provisions.  (a)  Nothing in this memorandum shall be constr
 </details>
 
 <details>
-<summary>13. Organization of the National Security Council and Subcommittees</summary>
+<summary>15. Organization of the National Security Council and Subcommittees</summary>
 
 January 20, 2025
 
@@ -944,7 +966,7 @@ E.  General
 </details>
 
 <details>
-<summary>14. Reevaluating And Realigning United States Foreign Aid</summary>
+<summary>16. Reevaluating And Realigning United States Foreign Aid</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -981,7 +1003,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>15. Temporary Withdrawal of All Areas on the Outer Continental Shelf from Offshore Wind Leasing and Review of the Federal Government’s Leasing and Permitting Practices for Wind Projects</summary>
+<summary>17. Temporary Withdrawal of All Areas on the Outer Continental Shelf from Offshore Wind Leasing and Review of the Federal Government’s Leasing and Permitting Practices for Wind Projects</summary>
 
 January 20, 2025
 
@@ -1036,7 +1058,7 @@ This memorandum is not intended to, and does not, create any right or benefit, s
 </details>
 
 <details>
-<summary>16. Declaring a National Energy Emergency</summary>
+<summary>18. Declaring a National Energy Emergency</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, including the National Emergencies Act (50 U.S.C. 1601et seq.) (“NEA”), and section 301 of title 3, United States Code, it is hereby ordered:
 
@@ -1129,7 +1151,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>17. Restoring Accountability for Career Senior Executives</summary>
+<summary>19. Restoring Accountability for Career Senior Executives</summary>
 
 January 20, 2025
 
@@ -1166,7 +1188,7 @@ The President must be able to trust that the Executive Branch will work together
 </details>
 
 <details>
-<summary>18. Promoting Beautiful Federal Civic Architecture</summary>
+<summary>20. Promoting Beautiful Federal Civic Architecture</summary>
 
 January 20, 2025
 
@@ -1185,7 +1207,7 @@ If, before such recommendations are submitted, the Administrator of the General 
 </details>
 
 <details>
-<summary>19. Restoring The Death Penalty And Protecting Public Safety</summary>
+<summary>21. Restoring The Death Penalty And Protecting Public Safety</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -1240,7 +1262,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>20. Putting People Over Fish: Stopping Radical Environmentalism to Provide Water to Southern California</summary>
+<summary>22. Putting People Over Fish: Stopping Radical Environmentalism to Provide Water to Southern California</summary>
 
 January 20, 2025
 
@@ -1267,7 +1289,7 @@ Within 90 days of the date of this memorandum, the Secretary of Commerce and Sec
 </details>
 
 <details>
-<summary>21. Securing Our Borders</summary>
+<summary>23. Securing Our Borders</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, including the Immigration and Nationality Act (INA), 8 U.S.C. 1101et seq., and section 301 of title 3, United States Code, it is hereby ordered:
 
@@ -1346,7 +1368,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>22. Protecting The Meaning And Value Of American Citizenship</summary>
+<summary>24. Protecting The Meaning And Value Of American Citizenship</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -1391,7 +1413,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>23. Realigning the United States Refugee Admissions Program</summary>
+<summary>25. Realigning the United States Refugee Admissions Program</summary>
 
 REALIGNING THE United States REFUGEE ADMISSIONS PROGRAM
 
@@ -1434,7 +1456,7 @@ THE WHITE HOUSE,     January 20, 2025.
 </details>
 
 <details>
-<summary>24. Unleashing American Energy</summary>
+<summary>26. Unleashing American Energy</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -1597,7 +1619,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>25. Clarifying The Military’s Role In Protecting The Territorial Integrity Of The United States</summary>
+<summary>27. Clarifying The Military’s Role In Protecting The Territorial Integrity Of The United States</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -1640,7 +1662,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>26. America First Trade Policy</summary>
+<summary>28. America First Trade Policy</summary>
 
 January 20, 2025
 
@@ -1745,7 +1767,7 @@ Sec. 6.  General Provisions.  (a)  Nothing in this memorandum shall be constr
 </details>
 
 <details>
-<summary>27. Memorandum to Resolve the Backlog of Security Clearances for Executive Office of the President Personnel</summary>
+<summary>29. Memorandum to Resolve the Backlog of Security Clearances for Executive Office of the President Personnel</summary>
 
 January 20, 2025
 
@@ -1776,7 +1798,7 @@ This memorandum is not intended to, and does not, create any right or benefit, s
 </details>
 
 <details>
-<summary>28. Declaring A National Emergency At The Southern Border Of The United States</summary>
+<summary>30. Declaring A National Emergency At The Southern Border Of The United States</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, I hereby proclaim:
 
@@ -1825,7 +1847,7 @@ IN WITNESS WHEREOF, I have hereunto set my hand this twentieth day of January, i
 </details>
 
 <details>
-<summary>29. Holding Former Government Officials Accountable For Election Interference And Improper Disclosure Of Sensitive Governmental Information</summary>
+<summary>31. Holding Former Government Officials Accountable For Election Interference And Improper Disclosure Of Sensitive Governmental Information</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered:
 
@@ -1974,7 +1996,7 @@ THE WHITE HOUSE,     January 20, 2025.
 </details>
 
 <details>
-<summary>30. Restoring Accountability To Policy-Influencing Positions Within the Federal Workforce</summary>
+<summary>32. Restoring Accountability To Policy-Influencing Positions Within the Federal Workforce</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, including sections 3301, 3302, and 7511 of title 5, United States Code, it is hereby ordered as follows:
 
@@ -2041,7 +2063,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>31. Withdrawing The United States From The World Health Organization</summary>
+<summary>33. Withdrawing The United States From The World Health Organization</summary>
 
 WITHDRAWING THE UNITED STATES FROM THE WORLD
 
@@ -2090,7 +2112,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>32. Application Of Protecting Americans From Foreign Adversary Controlled Applications Act To TikTok</summary>
+<summary>34. Application Of Protecting Americans From Foreign Adversary Controlled Applications Act To TikTok</summary>
 
 APPLICATION OF PROTECTING AMERICANS FROM FOREIGN ADVERSARY CONTROLLED APPLICATIONS ACT TO TIKTOK
 
@@ -2131,7 +2153,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>33. Granting Pardons And Commutation Of Sentences For Certain Offenses Relating To The Events At Or Near The United States Capitol On January 6, 2021</summary>
+<summary>35. Granting Pardons And Commutation Of Sentences For Certain Offenses Relating To The Events At Or Near The United States Capitol On January 6, 2021</summary>
 
 BY THE PRESIDENT OF THE UNITED STATES OF AMERICA
 
@@ -2186,7 +2208,7 @@ twentieth day of January, in the year of our Lord two thousand twenty-five, an
 </details>
 
 <details>
-<summary>34. Putting America First In International Environmental Agreements</summary>
+<summary>36. Putting America First In International Environmental Agreements</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
 
@@ -2229,7 +2251,7 @@ THE WHITE HOUSE, January 20, 2025.
 </details>
 
 <details>
-<summary>35. Delivering Emergency Price Relief for American Families and Defeating the Cost-of-Living Crisis</summary>
+<summary>37. Delivering Emergency Price Relief for American Families and Defeating the Cost-of-Living Crisis</summary>
 
 Over the past 4 years, the Biden Administration’s destructive policies inflicted an historic inflation crisis on the American people.  The Biden Administration not only exploded Government spending, artificially and unsustainably stimulating demand, but it simultaneously made necessary goods and services scarce through a crushing regulatory burden and radical policies designed to weaken American production.  Hardworking families today are overwhelmed by the cost of fuel, food, housing, automobiles, medical care, utilities, and insurance.
 
@@ -2248,7 +2270,7 @@ I hereby order the heads of all executive departments and agencies to deliver em
 </details>
 
 <details>
-<summary>36. Hiring Freeze</summary>
+<summary>38. Hiring Freeze</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, I hereby order a freeze on the hiring of Federal civilian employees, to be applied throughout the executive branch.  As part of this freeze, no Federal civilian position that is vacant at noon on January 20, 2025, may be filled, and no new position may be created except as otherwise provided for in this memorandum or other applicable law.  Except as provided below, this freeze applies to all executive departments and agencies regardless of their sources of operational and programmatic funding.
 
@@ -2269,7 +2291,7 @@ This memorandum does not abrogate any collective bargaining agreement in effect 
 </details>
 
 <details>
-<summary>37. Regulatory Freeze Pending Review</summary>
+<summary>39. Regulatory Freeze Pending Review</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, I hereby order all executive departments and agencies to take the following steps:
 
@@ -2298,7 +2320,7 @@ This memorandum shall be implemented consistent with applicable law.
 </details>
 
 <details>
-<summary>38. Return to In-Person Work</summary>
+<summary>40. Return to In-Person Work</summary>
 
 Heads of all departments and agencies in the executive branch of Government shall, as soon as practicable, take all necessary steps to terminate remote work arrangements and require employees to return to work in-person at their respective duty stations on a full-time basis, provided that the department and agency heads shall make exemptions they deem necessary.
 
@@ -2309,7 +2331,7 @@ This memorandum shall be implemented consistent with applicable law.
 </details>
 
 <details>
-<summary>39. Ending The Weaponization Of The Federal Government</summary>
+<summary>41. Ending The Weaponization Of The Federal Government</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, and section 301 of title 3, United States Code, it is hereby ordered as follows:
 
@@ -2346,7 +2368,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>40. Restoring Freedom Of Speech And Ending Federal Censorship</summary>
+<summary>42. Restoring Freedom Of Speech And Ending Federal Censorship</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, and section 301 of title 3, United States Code, it is hereby ordered as follows:
 
@@ -2383,7 +2405,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>41. Initial Rescissions Of Harmful Executive Orders And Actions</summary>
+<summary>43. Initial Rescissions Of Harmful Executive Orders And Actions</summary>
 
 By the authority vested in me as President by the Constitution and the laws of the United States of America, it is hereby ordered as follows:
 
@@ -2418,7 +2440,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>42. Flying The Flag Of The United States At Full-Staff On Inauguration Day</summary>
+<summary>44. Flying The Flag Of The United States At Full-Staff On Inauguration Day</summary>
 
 BY THE PRESIDENT OF THE UNITED STATES OF AMERICA
 
@@ -2441,7 +2463,7 @@ IN WITNESS WHEREOF, I have hereunto set my hand this twentieth day of January, i
 </details>
 
 <details>
-<summary>43. President Trump Designates Chairmen and Acting Chairmen</summary>
+<summary>45. President Trump Designates Chairmen and Acting Chairmen</summary>
 
 I hereby designate the following:
 
@@ -2454,7 +2476,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>44. President Trump Announces Acting Cabinet and Cabinet-Level Positions</summary>
+<summary>46. President Trump Announces Acting Cabinet and Cabinet-Level Positions</summary>
 
 Pursuant to the Constitution and the laws of the United States, including but not limited to 5 U.S.C. 3345et seq., I hereby direct the following individuals to perform the functions and duties of the indicated positions in an acting capacity until the position is filled by appointment.
 
@@ -2467,7 +2489,7 @@ January 20, 2025.
 </details>
 
 <details>
-<summary>45. President Trump Announces Sub-Cabinet Appointments</summary>
+<summary>47. President Trump Announces Sub-Cabinet Appointments</summary>
 
 To the Senate of the United States, I nominate
 
@@ -2576,7 +2598,7 @@ Keith Sonderling, of Florida, to be Deputy Secretary of Labor, vice Julie A. Su,
 </details>
 
 <details>
-<summary>46. President Trump Announces Cabinet and Cabinet Level Appointments</summary>
+<summary>48. President Trump Announces Cabinet and Cabinet Level Appointments</summary>
 
 To the Senate of the United States, I nominate
 
